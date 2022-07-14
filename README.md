@@ -1,4 +1,4 @@
-# English Tenses in Active & Passive Voices
+# English Tenses
 
 Screenshot
 
