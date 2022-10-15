@@ -1,4 +1,4 @@
-# English Tenses
+# English Tense Table
 
 Screenshot
 
